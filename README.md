@@ -9,7 +9,7 @@
 
 쑤튜브 구독하기→ http://bit.ly/Ssootube 
 
-쑤튜브 블로그→http://bit.ly/SsootubeBlog 
+쑤튜브 블로그→https://bit.ly/ssootubeBlog
 
 쑤튜브 가입하기→https://bit.ly/SsootubeJoin
 
